@@ -1,16 +1,161 @@
-## Hi there 👋
+![Image](https://github.com/user-attachments/assets/c546f7ee-ae0a-4489-a788-602f98241aca)
 
-<!--
-**chastityofsinners/chastityofsinners** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤ۪  𝅄ㅤ ꒰  美な  ꒱  ⏤ㅤ  ۪ ୧
+ㅤ
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+𐰁.				 vera 								inumia					ㅤ𐚁 ᡣ𐭩   ⋆ ◞
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ㅤ𓈒
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ㅤ୭ৎ  she herㅤ𝅄ㅤ.  infj  ۪ ㅤ. ꒱
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+⤷   𓈒  𓂃⏦
+　
+  
+  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+  
+  
+  
+  
+  ౨᭪˳　__ bmf to know more about me,　__   　    𓈒
+　
+    
+
+
+
+
+
+
+
+
+
+
+
+
+
+    
+    
+    
+    
+⏝⏝࡛⏝  ིྀ ⏝࡛⏝
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ৎ୭　lmk if you wanna be mentioned in my GitHub!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+₍ᐢ._.ᐢ 𓈒
