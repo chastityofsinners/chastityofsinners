@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/c546f7ee-ae0a-4489-a788-602f98241aca)
+![Image](https://github.com/user-attachments/assets/0d149352-8ab3-4709-87ff-56e5cd9252cf)
 
 
 
@@ -22,7 +22,7 @@
 
 
 
-𐰁.				 vera 			/					inumia					ㅤ𐚁 ᡣ𐭩   ⋆ ◞
+𐰁.				 vera 		      pr3ty    ㅤ𐚁 ᡣ𐭩   ⋆ ◞
 
 
 
@@ -52,7 +52,7 @@
 
 
 
-ㅤ୭ৎ  she herㅤ𝅄ㅤ.  infj  ۪ ㅤ. ꒱
+ㅤ୭ৎ  she her   ۪ ㅤ. ꒱
 
 
 
@@ -98,7 +98,7 @@
   
   
   
-  ౨᭪˳　__ bmf to know more about me,　__   　    𓈒
+  ౨᭪˳　__ french, british ^-^　__   　    𓈒
 　
     
 
