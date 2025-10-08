@@ -67,6 +67,58 @@ i am diagnosed with [age regression](https://en.m.wikipedia.org/wiki/Age_regress
 
 
 
+art so i can attract more poeple 
 
+
+
+
+
+
+![Image](https://github.com/user-attachments/assets/49acfce0-68cb-43c4-b4dd-4ce1c69d7937)
+
+
+
+
+
+
+
+
+
+
+
+![Image](https://github.com/user-attachments/assets/083f6e86-4290-4962-bac6-b510adbc4117)
+
+
+
+
+
+
+
+
+
+
+![Image](https://github.com/user-attachments/assets/192236f6-e0ff-4aa6-8177-4b34ccd61ff9)
+
+
+
+
+
+
+
+
+
+![Image](https://github.com/user-attachments/assets/958a466c-06e2-4f50-a41c-b13c30772dee)
+
+
+
+
+
+
+
+
+
+
+
+![Image](https://github.com/user-attachments/assets/1bac471f-33f4-4479-8db5-191df218a912)
 
 	
