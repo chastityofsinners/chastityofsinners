@@ -71,6 +71,16 @@ art so i can attract more poeple
 
 
 
+• do NOT use without permission 
+
+
+• tracing is not allowed, i would block you.
+
+
+
+• al of this is drawn with hands, not styluses
+
+
 
 
 
