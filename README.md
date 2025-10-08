@@ -1,35 +1,39 @@
-![Image](https://github.com/user-attachments/assets/0d149352-8ab3-4709-87ff-56e5cd9252cf)
+![image](https://github.com/user-attachments/assets/552cbbba-283a-4116-a8b5-99dcce55a062)
 
 
 
-ㅤ۪  𝅄ㅤ ꒰  美な  ꒱  ⏤ㅤ  ۪ ୧
-ㅤ
 
 
+[least favourite ship](https://shipping.fandom.com/wiki/IChance)
 
 
 
 
 
+• i get triggered by it easily, do __not__ mention it so casually Infront of me.
 
 
 
 
+![Image](https://github.com/user-attachments/assets/c8b682ca-cbb1-495b-a3c4-a3fc55b2dd42)
 
 
 
+• do not mistake me for polymadness ceo ^-^
 
 
 
 
- xari / pr3ty
+• we support yaoi and yuri
 
 
 
+![Image](https://github.com/user-attachments/assets/c8b682ca-cbb1-495b-a3c4-a3fc55b2dd42)
 
 
 
 
+i am diagnosed with [age regression](https://en.m.wikipedia.org/wiki/Age_regression_in_therapy) and [Dislocated or hyperextended elbow joint](https://en.m.wikipedia.org/wiki/Dislocated_shoulder)
 
 
 
@@ -37,10 +41,10 @@
 
 
 
-ㅤ𓈒
 
 
 
+![Image](https://github.com/user-attachments/assets/c8b682ca-cbb1-495b-a3c4-a3fc55b2dd42)
 
 
 
@@ -50,9 +54,9 @@
 
 
 
+• me and lev (A.K.A @HeraldedVirtue) are not dating. don't tease us about it
 
 
-ㅤ୭ৎ  she her   ۪ ㅤ. ꒱
 
 
 
@@ -65,97 +69,4 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
-⤷   𓈒  𓂃⏦
-　
-  
-  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-  
-  
-  
-  
-  ౨᭪˳　__ french, british ^-^　__   　    𓈒
-　
-    
-
-
-
-
-
-
-
-
-
-
-
-
-
-    
-    
-    
-    
-⏝⏝࡛⏝  ིྀ ⏝࡛⏝
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-ৎ୭　lmk if you wanna be mentioned in my GitHub!
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-₍ᐢ._.ᐢ 𓈒
+	
