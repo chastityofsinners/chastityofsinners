@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/552cbbba-283a-4116-a8b5-99dcce55a062)
+![Image](https://github.com/user-attachments/assets/3cd76451-afac-465a-9ccd-f0cd00c490ce)
 
 
 
@@ -15,7 +15,7 @@
 
 
 
-![Image](https://github.com/user-attachments/assets/c8b682ca-cbb1-495b-a3c4-a3fc55b2dd42)
+
 
 
 
@@ -28,7 +28,7 @@
 
 
 
-![Image](https://github.com/user-attachments/assets/c8b682ca-cbb1-495b-a3c4-a3fc55b2dd42)
+![Image](https://github.com/user-attachments/assets/775042c8-b3d6-4420-a97a-ffd11a2abcf2)
 
 
 
@@ -44,7 +44,7 @@ i am diagnosed with [age regression](https://en.m.wikipedia.org/wiki/Age_regress
 
 
 
-![Image](https://github.com/user-attachments/assets/c8b682ca-cbb1-495b-a3c4-a3fc55b2dd42)
+![Image](https://github.com/user-attachments/assets/775042c8-b3d6-4420-a97a-ffd11a2abcf2)
 
 
 
@@ -54,7 +54,7 @@ i am diagnosed with [age regression](https://en.m.wikipedia.org/wiki/Age_regress
 
 
 
-• me and lev (A.K.A @HeraldedVirtue) are not dating. don't tease us about it
+• me and lev (A.K.A @OurForgottenMemories) are not dating.
 
 
 
@@ -78,7 +78,9 @@ art so i can attract more poeple
 
 
 
-• al of this is drawn with hands, not styluses
+• all of this is drawn with hands BARE
+
+![Image](https://github.com/user-attachments/assets/775042c8-b3d6-4420-a97a-ffd11a2abcf2)
 
 
 
