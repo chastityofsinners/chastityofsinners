@@ -22,7 +22,7 @@
 
 
 
-• do not mistake me for polymadness ceo ^-^
+• i am not a spawnist
 
 
 
