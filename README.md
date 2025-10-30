@@ -68,6 +68,20 @@ art so i can attract more poeple
 
 • all of this is drawn with hands BARE
 
+
+
+
+
+
+
+
+
+![Image](https://github.com/user-attachments/assets/3b129948-123a-4e6e-a78f-b46c87f7974d)
+
+
+
+
+
 ![Image](https://github.com/user-attachments/assets/775042c8-b3d6-4420-a97a-ffd11a2abcf2)
 
 
