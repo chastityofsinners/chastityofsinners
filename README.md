@@ -1,5 +1,5 @@
 
-![1000013374](https://github.com/user-attachments/assets/691934b1-1b34-4c6f-80d9-9eee932a25c5)
+![Image](https://github.com/user-attachments/assets/175e0335-f3c5-449d-8704-8c6e89938a91)
 
 
 
@@ -22,12 +22,11 @@
 
 
 
-• i am not a spawnist
 
 
 
 
-• we support yaoi and yuri
+
 
 
 
@@ -41,27 +40,13 @@ i am diagnosed with [age regression](https://en.m.wikipedia.org/wiki/Age_regress
 
 
 
-
+![Image](https://github.com/user-attachments/assets/5ca20784-e90e-40a5-bc60-2e2b11d422b7)
 
 
 
 
 
 ![Image](https://github.com/user-attachments/assets/775042c8-b3d6-4420-a97a-ffd11a2abcf2)
-
-
-
-
-
-
-
-
-
-• me and lev (A.K.A @OurForgottenMemories) are not dating.
-
-
-
-
 
 
 
