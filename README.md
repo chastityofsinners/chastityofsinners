@@ -33,6 +33,9 @@
 ![Image](https://github.com/user-attachments/assets/775042c8-b3d6-4420-a97a-ffd11a2abcf2)
 
 
+wait I'm too lazy to remove it hahaah homophobic people int 
+
+
 
 
 i am diagnosed with [age regression](https://en.m.wikipedia.org/wiki/Age_regression_in_therapy) and [Dislocated or hyperextended elbow joint](https://en.m.wikipedia.org/wiki/Dislocated_shoulder)
